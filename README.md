@@ -1,0 +1,1 @@
+# gf75-thin-9sc-EFI
